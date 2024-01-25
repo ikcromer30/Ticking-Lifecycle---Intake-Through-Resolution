@@ -1,0 +1,1 @@
+# Ticking-Lifecycle---Intake-Through-Resolution
